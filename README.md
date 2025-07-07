@@ -2,9 +2,7 @@
 
 **Business Analyst | Financial Data Analyst | Sales and Business Development | MBA & MS in Business Analytics**
 
-🚀 I'm passionate about turning raw data into actionable insights. Currently completing my Master of Business Analytics at Macquarie University and working as a Business Development Representative at Tiger Brokers.
-
----
+🚀 I'm passionate about turning raw data into actionable insights.
 
 ### 💼 Experience Highlights
 
